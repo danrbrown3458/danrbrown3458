@@ -4,7 +4,8 @@
 - 💞️ I’m looking to meeting other people who are experienced in the field and to learn from others
 - 📫 How to reach me - Email: danrbrown.3458@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I was born and raised in Columbus Ohio, Go Bucks!
+- ⚡ Fun Fact: I was born and raised in Columbus Ohio, Go Bucks!
+- 🐱‍🏍 Hobbies: Watching sports (football and hockey), reading sci-fi/fantasy related books, playing drumset
 
 <!---
 danrbrown3458/danrbrown3458 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
